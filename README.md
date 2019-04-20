@@ -1,0 +1,2 @@
+TikTok is a new platform for creative people, because it is an interesting and exciting way to create and share short music videos. It was launched in 2017 for Android and iPhone and collects more than 154 million active users every month. It shows unique and interesting videos from different users around the world, and, like other social networking sites, you can leave comments, share videos with friends and much more. However, if you are tired of browsing online and visiting: https://loadafile.com/
+
